@@ -6,6 +6,7 @@ i have a loonggg exasperating list of medical issues and identity issues the mai
 that wholeheartedly affects the way i am as a person but i am trying my hardest to improve how i act, behave or
 the things i say :)
 
+i am a chronic multi-shipper and heavily attached to my source as kokichi and i am immature ok
 
 
 DNI.
