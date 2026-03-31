@@ -1,17 +1,26 @@
 BYI.
-we are a system, ponies with ' | sys ' in their name are used when THAT part is fronting.. it isn't there for decoration
-so please don't see them as someone who is cosplaying 👀 that is my headmate okay?
+we are a system, ponies sort of take whatever outfit is being worn as a hint as to who is up front sooo incelcoreeyghhh
+but please don't see them as someone who is cosplaying 👀 that is my headmate okay?
 
+i have a loonggg exasperating list of medical issues and identity issues the main one i'll mention is bpd as
+that wholeheartedly affects the way i am as a person but i am trying my hardest to improve how i act, behave or
+the things i say :)
 
 
 
 DNI.
-dni if you are sensitive to certain humour of ours:
-homophobia (always directed to our partner as a joke)/slurs -- we CAN reclaim. 
-implied suicide/sh jokes which is used as a lighthearted way to cope
+i don't have a huge dni i usually block freely and rarely although i do have set
+boundaries as to who i want and don't want to interact with me:
 
-endogenic 'systems' hello? why would you WANT to be a system
-fiction kins and irls, unless any of us interact first don't talk to us a lot of you irk me
-you will just be hidden if you interact no prewarning 
+hazbin/helluva boss fans, i genuinely can't acknowledge there being a non cringe side of the
+fandom
 
-hazbin/helluva boss, haunted hotel, hoyoverse fans -- adding more because a lot more fandoms piss me off
+if you're uncomfortable with sh/kms/kys 'jokes' i use it mainly to add humour to the way
+i cope so if you're not ok with that then i just wouldn't int no hate no hate
+
+^^^ sort of on the same path, but, if you don't like use of any slurs even if they're reclaimable
+i drop the f and r slur too many times to count (both of which i can say)
+
+endogenic 'systems' -- again, extremely self explanatory but just to dumb it down
+why would anyone volunteer theirself to 'become a system' & why are we normalising the
+severe trauma that comes with being a system.. sooooo weeeird 
